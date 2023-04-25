@@ -29,8 +29,4 @@ Also tea towels & post cards with printed art work.
 
 Textile to me is anything that can be hooked, woven or sewn. To this base I add carved and shaped wood, metal and glass.  With these materials I recreate geological features and maritime views. I often work from photographs and this has lead me to look at photography as a new way of expressing myself.
 
-In 2000 I lead a group of artists in the building of an installation on the beach at Mundesley, Norfolk with the express purpose of using the project as a photo opportunity.  
-Although it was very hard work over a short space of time it was very successful and I hope to lead many more projects of this type.  
-The following year I exhibited the photographs in Braintree and recreated the installation in the town centre.
-
-2005 Bought in a new way of looking at photography, using computer magic I've turned my photographs into multi-pattern images with the use of flip, mirror and rotate. This will often bring about very exciting and stimulating new work.
+![](./styles.svg)
