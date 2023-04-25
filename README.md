@@ -1,6 +1,10 @@
-# Jill Leech, Textile and Mixed-media Artist
+| [Facebook for latest updates](https://www.facebook.com/jill.leech.textiles) |
 
-- [Facebook for latest updates](https://www.facebook.com/jill.leech.textiles)
+## Textile and Mixed-media Artist
+
+**Although I am a textile artist I like the freedom to work in any material and on any scale. This is reflected in my wallhangings which can be a modest 15"x17" or a bold 7'x4.5', space is the only thing preventing me going bigger, at the moment.**
+
+Textile to me is anything that can be hooked, woven or sewn. To this base I add carved and shaped wood, metal and glass.  With these materials I recreate geological features and maritime views. I often work from photographs and this has lead me to look at photography as a new way of expressing myself.
 
 ## Saffron Walden Town, an Exhibition
 
@@ -23,9 +27,3 @@ Limited edition signed (hand-made and printed motifs):
 - Small & Large Shopping Bags
 
 Also tea towels & post cards with printed art work.
-
-## Statement
-
-**Although I am a textile artist I like the freedom to work in any material and on any scale. This is reflected in my wallhangings which can be a modest 15"x17" or a bold 7'x4.5', space is the only thing preventing me going bigger, at the moment.**
-
-Textile to me is anything that can be hooked, woven or sewn. To this base I add carved and shaped wood, metal and glass.  With these materials I recreate geological features and maritime views. I often work from photographs and this has lead me to look at photography as a new way of expressing myself.
