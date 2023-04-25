@@ -1,9 +1,14 @@
 # Jill Leech Textiles
 
 ## Saffron Walden Town, an Exhibition
+<dl>
+  <dt>Date</dt>
+  <dd>17 July - 12 August 2023</dd>
+  <dt>Location</dt>
+  <dd>Saffron Walden Town Library ([library website](https://saffronwalden.gov.uk/library/))</dd>
+</dl>
 
-Date: 17 July - 12 August 2023
-Location: Saffron Walden Town Library ([library website](https://saffronwalden.gov.uk/library/))
+![Preview of artwork: old Saffron Walden town map, embroidered & hand painted](https://user-images.githubusercontent.com/70727/234217757-c9671b04-a14d-40f4-a672-9749658817c2.jpg)
 
 There will be original art works based in and around Saffron Walden.
 
