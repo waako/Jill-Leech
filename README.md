@@ -14,7 +14,7 @@
 
 There will be original art works based in and around Saffron Walden.
 
-### Exlusive exhibition gifts 
+### Exclusive exhibition gifts 
 
 Limited edition signed (hand-made and printed motifs):
 
