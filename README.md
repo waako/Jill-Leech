@@ -1,5 +1,7 @@
 # Jill Leech, Textile and mixed-media Artist
 
+- [Facebook for latest updates](https://www.facebook.com/jill.leech.textiles)
+
 ## Saffron Walden Town, an Exhibition
 <dl>
   <dt>Date</dt>
