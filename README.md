@@ -8,6 +8,17 @@ Textile to me is anything that can be hooked, woven or sewn. To this base I add 
 
 ## Saffron Walden Town, an Exhibition
 
+**I’ve lived in Saffron Walden since 1980 and have always been fascinated by the history of the place, along with the love of maps.**
+
+I’ve been playing with the idea of making a textile map but deciding on scale and medium was a sticking point.
+In 2017 I asked if I could look at the photocopies of the Saffron Walden maps in the library archives, and wow that blew my mind! 
+
+I knew exactly what needed to be done. So set up with tracing paper and pencils I spent an entire day tracing out the _“Saffron Walden Town plan by Surveyor Edward John Eyre”_ Cira 1757-1758. 
+
+Over the intervening years I’ve worked on this map and a collection of works relating to Saffron Walden. My collection of works covers a wide range of textile techniques including, quilting, tapestry, stump work, locker hook, fabric painting and printing.
+
+I am pleased to invite you to come and view this work at the Library in Saffron Walden.
+
 <dl>
   <dt>Date</dt>
   <dd>17 July - 12 August 2023</dd>
