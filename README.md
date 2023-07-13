@@ -8,6 +8,8 @@ Textile to me is anything that can be hooked, woven or sewn. To this base I add 
 
 ## Saffron Walden Town, an Exhibition
 
+![](https://github.com/waako/Jill-Leech/assets/70727/ceb5784a-5c81-49a7-9098-5a42a87b79a8)
+
 **I’ve lived in Saffron Walden since 1980 and have always been fascinated by the history of the place, along with the love of maps.**
 
 I’ve been playing with the idea of making a textile map but deciding on scale and medium was a sticking point.
